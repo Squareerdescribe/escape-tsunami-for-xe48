@@ -1,4 +1,4 @@
-
+Experience escape tsunami for brainrots like never before with escape tsunami for brainrots Scripts smart, the #1 Script. Includes anti-ban and fly
 
 
 
